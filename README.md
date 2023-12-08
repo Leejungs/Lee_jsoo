@@ -1,1 +1,1 @@
-# Lee_jsoo
+# Lee_jsoo의 프로필
